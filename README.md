@@ -51,3 +51,9 @@ Os principais pontos do modelo incluem:
 
 💡 *Se desejar, podemos aprofundar a relação entre a consciência política e a psicologia dos movimentos sociais ou analisar como a memória política atua no fortalecimento da cidadania.*
 > Fonte: [Psicología y política en Brasil: ¿Psicología politizada o Psicología política?](http://www.revistasbolivianas.ciencia.bo/scielo.php?pid=S2223-30322018000100011&script=sci_arttext&tlng=pt)
+
+---
+
+## Materiais criados
+Acesse o [Mapa mental](https://notebook.google.com/notebook/6b9b0e79-ebd1-4639-a27e-8e0d090660b5/artifact/18e15e5c-6d45-4456-a9a5-7ff5dccd807d)
+Acesse os [Flashcards](https://notebook.google.com/notebook/6b9b0e79-ebd1-4639-a27e-8e0d090660b5/artifact/2e871d95-c1d4-4aba-ad30-4af6229e3abd)
