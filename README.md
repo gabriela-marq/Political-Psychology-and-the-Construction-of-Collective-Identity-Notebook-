@@ -1,5 +1,6 @@
 # Political-Psychology-and-the-Construction-of-Collective-Identity-Notebook-
 > Um projeto de educação política para compor o desenvolvimento de um cidadão
+
 Este notebook foi criado para aprofundar meus conhecimentos sobre psicologia política, educação política e funcionamento das instituições democráticas, articulando estudos teóricos, pesquisas acadêmicas, materiais educativos, documentos institucionais e informações jornalísticas.
 
 > Acesse o [notebook](https://notebook.google.com/notebook/6b9b0e79-ebd1-4639-a27e-8e0d090660b5?authuser=1) 
